@@ -1,1 +1,1 @@
-My betty permission
+Betty
